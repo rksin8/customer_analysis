@@ -15,3 +15,6 @@
 ![an image caption Source: Ultimate Funny Dog Videos Compilation 2013.](figs/5.png)
 
 ![an image caption Source: Ultimate Funny Dog Videos Compilation 2013.](figs/6.png)
+
+
+![an image caption Source: Ultimate Funny Dog Videos Compilation 2013.](figs/7.png)
